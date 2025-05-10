@@ -12,8 +12,8 @@ Before you start shopping, take a look at these amazing AliExpress promo codes f
 - **Get $50 OFF** on orders over **$459+**
 - **Get $40 OFF** on orders over **$329+**
 - **Get $30 OFF** on orders over **$239+**
-- **Get $20 OFF** on orders over **$69+**
-- **Get $10 OFF** on orders over **$29+**
+- **Get $20 OFF** on orders over **$159+**
+- **Get $10 OFF** on orders over **$79+**
 
 These codes can help you save a significant amount when shopping on AliExpress. Now, let’s talk about how to use them!
 
