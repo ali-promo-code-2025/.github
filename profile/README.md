@@ -5,9 +5,9 @@ Top AliExpress Promo Codes for May 2025. Use AliExpress coupon codes to save up 
 ## Latest AliExpress Promo Codes for 2025
 Before you start shopping, take a look at these amazing AliExpress promo codes for 2025 that will help you save big.
 
-[AliExpress Promo Code]()
+[AliExpress Promo Code](https://alii.pub/775v7z)
 
-[AliExpress Promo Code]()
+[AliExpress Promo Code](https://alii.pub/775v7z)
 
 - **Get $50 OFF** on orders over **$459+**
 - **Get $40 OFF** on orders over **$329+**
